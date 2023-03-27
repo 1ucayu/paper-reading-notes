@@ -8,4 +8,3 @@ In addition to reading some literature, I also watched Li Mu's video, thank [Dr.
 
 I will continue to update other articles and tables in the future...   
 Thanks for your focusing.   
-Recently, I am busy preparing for my recommendation postgraduate and IELTS. I will update this repo after National Day holiday.
